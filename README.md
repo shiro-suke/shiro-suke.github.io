@@ -1,0 +1,1 @@
+# shiro-suke.github.io
